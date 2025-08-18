@@ -2,7 +2,7 @@
 - 👀 I’m interested in In Coding
 - 🌱 I’m currently learning BlockChain web3, Solidity, etc,
 - 💞️ I’m looking to collaborate on any project using Javascript, Python and Java
-- 📫 How to reach me via whatsapp +2348068318510, 0r +237679143332 on call
+- 📫 How to reach me via whatsapp +2348062923229.
 
 - ⚡ Fun fact: Love Music, Learning New things, 
 
